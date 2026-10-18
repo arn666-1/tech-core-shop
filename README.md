@@ -1,0 +1,1 @@
+# tech-core-shop
